@@ -8,4 +8,4 @@
 <p align="center"> hello! i'm kami ^^ im a japan hetalia yumeshipper, as well as griefer from block tales.<br>
 my dni can be found in my strawpage, as well as my many many fandoms...
 </p>
-<p align="center"> i'm a romano kinnie as well as a few other hetalia characters and characters outside of hetalia as well.</p>
+<p align="center"> i'm otherhearted and romano is one of my main synpaths alongside canada, sweden, japan, and some non-hetalia characters as well. i dont feel like giving a full list tho.</p>
