@@ -1,11 +1,19 @@
+<div align="center">
+<img width="650" src="https://github.com/user-attachments/assets/4747c6e4-faf2-4dca-8213-63849323a528">
+</div>
+
 <p align="center">
-<img width="735" height="490" alt="image" src="https://github.com/user-attachments/assets/ad3e3606-0db1-4599-9dc2-a889265ec61a" />
+ <img width="30" src="https://github.com/user-attachments/assets/7092cbcb-aa45-407b-b3df-10ea3c8730c0" />
+ hello! i'm kami <3
+    <br><br>
+    i'm quite shy, even online, so i'd appreciate if ur the one who initiates conversation with me. then again, i do talk first sometimes, like if i wanna compliment your skin or something.
+    <br><br>
+<div align="center">
+  <img width="650" src="https://github.com/user-attachments/assets/feb3cb5a-7720-4764-87af-9d475d26bc43">
+</div>
+<p align="center">
+  <br>
+  im otherhearted and have romano as one of my main synpaths. my page here is japan themed cuz i like japan a little more than him. i have a couple other synpaths too but i dont wanna make a list.
+  <br><br>
+  anyways, my dni and other info can be found in my strawpage. also, i'd appreciate if you took a look at my neocities site or signed my ata :) it makes me rlly happy
 </p>
-<p align="center"> ︵︵︵ ๑ ♡ ๑ ︵︵︵ </p>
-<br>
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sekuya&size=35&pause=1000&color=8CFF08&center=true&width=435&lines=Welcome!" alt="Typing SVG" /></a> </p>
-<p align="center"> ︵︵︵ ๑ ♡ ๑ ︵︵︵ </p>
-<p align="center"> hello! i'm kami ^^ im a japan hetalia yumeshipper, as well as griefer from block tales.<br>
-my dni can be found in my strawpage, as well as my many many fandoms...
-</p>
-<p align="center"> i'm otherhearted and romano is one of my main synpaths alongside canada, sweden, japan, and some non-hetalia characters as well. i dont feel like giving a full list tho.</p>
