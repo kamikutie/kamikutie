@@ -13,9 +13,7 @@
 </div>
 <p align="center">
   <br>
-  im otherhearted and have romano as one of my main synpaths. my page here is japan themed cuz i like japan a little more than him. i have a couple other synpaths too but i dont wanna make a list.
-  <br><br>
-  anyways, my dni and other info can be found in my strawpage. also, i'd appreciate if you took a look at my neocities site or signed my ata :) it makes me rlly happy
+idk what to write here just go check out the stuff i have linked
 </p>
 <div align="center">
 <img width="99" height="56"  src="https://github.com/user-attachments/assets/65c4a292-c820-4fd2-b7c5-673b2987fe6d">
