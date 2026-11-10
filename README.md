@@ -5,7 +5,20 @@
 ![](https://komarev.com/ghpvc/?username=kamikutie&color=f2a400&label=views&abbreviated=true)
 
 
-$\color{#F2A400}{TT: Do you have any idea how fucking sick I am of myself?}$ 
+$\color{#F2A400}{and⠀to⠀love⠀dirk⠀is⠀to⠀obey⠀him.}$ 
 
+<hr>
+
+call me $\color{#F2A400}{kami}$ or $\color{#F2A400}{dirk}$. :)
+
+c+h freely, and w2i if u want, but im fine with just talkin normally too.
+
+you can usually find me on the safe server in either the homestuck or hetalia areas. i've been leaning more to homestuck as of late.
+
+<hr>
+
+$\color{#F2A400}{sign⠀my⠀stuffz⠀;)}$
+
+[ata](https://kamikutie.atabook.org) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ [straw](https://kamikutie.straw.page)
 
 
