@@ -1,8 +1,11 @@
-<p align="center">
-<img width="650" src="https://i.pinimg.com/originals/ce/80/ce/ce80ce01981db50c24550cb7b3eb8235.gif" alt="Trickster!Dirk gif" >
- </p>
- <p align="center">
-i'll remake this sometime sooner or later
-</p>
+<div align="center">
+
+<img width="200" src="https://media.tenor.com/C-zfSenQGEQAAAAi/petting-strider.gif">
+
+![](https://komarev.com/ghpvc/?username=kamikutie&color=f2a400&label=views&abbreviated=true)
+
+
+$\color{#F2A400}{TT: Do you have any idea how fucking sick I am of myself?}$ 
+
 
 
