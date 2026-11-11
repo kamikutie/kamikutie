@@ -11,6 +11,8 @@ $\color{#F2A400}{and⠀to⠀love⠀dirk⠀is⠀to⠀obey⠀him.}$
 
 call me $\color{#F2A400}{kami}$ or $\color{#F2A400}{dirk}$. :)
 
+so/sp451 + dersite knight of heart
+
 c+h freely, and w2i cuz im usually offtab doin smth
 
 you can usually find me on the safe server in either the homestuck or hetalia areas. i've been leaning more to homestuck as of late.
